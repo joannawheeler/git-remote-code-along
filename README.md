@@ -1,0 +1,1 @@
+I will work through this headache. It has occurred to me that my health is a main determinant to whether I get much done or not. If I feel like crap, I don't work well, or I don't work at all.
